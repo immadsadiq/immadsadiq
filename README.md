@@ -1,4 +1,4 @@
-📊 Data Analyst 📊
+📊 Hi! I'm Data Analyst 📊
 
 🔍 Exploring insights in data and transforming them into actionable strategies.
 
